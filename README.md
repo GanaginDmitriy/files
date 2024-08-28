@@ -1,0 +1,1 @@
+https://alfabank.ru/everyday/package/premium/?platformId=alfapartners_msv_DC-premium_244486_3469276&utm_source=alfapartners&utm_medium=msv&utm_term=DC-premium&utm_campaign=244486&utm_content=alfapartners_msv_DC-premium_244486_3469276
